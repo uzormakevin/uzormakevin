@@ -1,0 +1,1 @@
+-A methodical and innovative Data Analyst, with great analytical skill in interpretation of data, providing strategic insights, data collection, a collaborative communicator with a successful track record in utilisation of data visualization tools.
